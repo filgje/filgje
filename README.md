@@ -1,5 +1,4 @@
 ### Hi, welcome 👋
-Im a student at Industrial Economy and Technology Management (Industriell Økonomi og Teknologiledelse) at NTNU Trondheim, Norway. 
 
 ## Skilled ⚡
 
